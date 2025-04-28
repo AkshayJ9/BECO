@@ -1,1 +1,1 @@
-## BECO SEM 7 Practicals
+## BECO SEM 7 and 8 Practicals
